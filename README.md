@@ -9,4 +9,4 @@ Here are the questions for my work
 3. Match the variable to its data type?
 
 
-the soltiions are above hope you guys thanks
+the soltiions are above hope you guys enjoy it thanks!!!!
